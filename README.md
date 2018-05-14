@@ -55,10 +55,6 @@ Voy para un putero que está en venustiano
 Voy para madero con cabeza de marciano.
 (aca toda inchadota como el doctor Simi, al cabo con que son las de arete puto, el millonario)
 
- 
- 
- 
- 
- no te la comas jiji agregue este comentario perro si o no raza 
+
 
  
