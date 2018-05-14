@@ -60,5 +60,11 @@ tetas y después te haría mierda conchetumadre MIERDA cuando empiece a salir sa
  o depositar mi liquido seminal en tu vientre para después procrear una linda familia, todo para un día volverme
  loco y violar a nuestras propias hijas hasta la muerte, enterrarlas y al dia siguiente desenterrarlas para 
  volverles a dar bien duro, tal y como debe ser mujer.
+ 
+ 
+ 
+ 
+ 
+ no te la comas jiji agregue este comentario perro si o no raza 
 
  
